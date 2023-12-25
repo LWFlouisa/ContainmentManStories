@@ -1,42 +1,70 @@
 ---
-title: "National Razor A"
+title: "I Drank My Last Coffee Cup"
 author: "S.R. Weaver"
 tags: ghosttrain flashfiction
 ---
-The red sun hangs over the midnight sky in the city.
+I got off the train to go to the snack bar by the gym, when I realized I had forgotten my business papers. I was still carrying my tablet inside of my shoulder bag, and had just enough cash in my wallet to get a Taxi home. Instead, I decided to take a sit at a table near the snack bar, and was about to call a friend to come pick me up.
 
-The city was mostly empty and the only people that were around mainly hung around the train station. The train station was populated by passengers from the next city over. The snack bar was in disarray, without anyone being in attendance to clean up the place. It would normally by mostly clean, tended by at least one employee who would offer at least candy bar from the glass shelf.
+At the table, I realized that I barely saw anyone at the gym right next door. After finishing my candy bar, two blueberry muffins, and decaf coffee, I walked right over to see who was inside. It had began to storm inside, so I went ahead and walked in, not really being sure if there would be anyone inside of the gym this early in the morning. Inside, I saw a group of friends sitting at a table near the window playing a game of poker, and other carrying instrument cases. Considering it was an activity near to far off the beaten path from Wrestling, you wouldn't think there would be people here with any other kinds of talent. Soon the storming outside melted with the sound of French and Japanese pop music on the radio. The cold air melting away.
 
-The passengers on the train read these comic magazines that would be sold on the news stand, being sold in newsprint that featured the different seasons in publications. These would come at around four hundred pages per book, and would be read on the subway. A new series would constantly be cycling in and out of the volumes of pages. There would not really be anything in them that your average person would recommend, except that no better books were available for perusal. None of the series would quite catch on, despite the efforts of the editorial team. In other magazines, this would be considered a sign that perhaps they should discontinue publication. I would say cancel, but language creep started setting in that made using that word no longer meaningful. For some reason this magazine would always keep being put on the magazine shelf, despite there be dwindling sales. In the past, people would say this would be do to political ideaologies creeping in, however the medium by its nature has had the tendency to let their right-wing sentiments influence the works in question do to editorial intrusions.
+I looked at the news bulletins to see if there was any current events. There was a company newsletter that featured the latest hot manga artists who wrote stories specifically for this local fitness center, and some news collumns. One news column stuck out at me in particular: "we mourn the loss of Frederick Wussershon, one of the great heavy weights of our time. Here is how I remember the last boxing match with him." I wonder if that was why there was hardly anyone who went here anyone; there was still a few people who came to walk the treadmills, and lift some weights, but nobody engaged in boxing matches. It used to be a men's only club, but recently began accepting women, every sense they stopped having boxing matches. You might think they would have women's sport activities, but for some reason they never bothered.
 
-In such a train station with disconnected priorities, influenced by long sense dated civil wars between sharp left-wing and right-wing sentiments, what was left was a husk of a station whose ticket sales gradually became fewer do to those of a centrist persuasion, whether that be liberal or conservative, being tired of being stuck in the middle between what seemed practically like rival gangs in social discourse. You could sneak in a semi-automatic gun, simply do to the sheer lack of security, ever sense groups like Antifa gradually expanded the meaning of police to also include security guards at subways. Despite the fact that the purpose wasn't just to prevent those who did not buy tickets from access. You would almost never even see anyone with a taser or can of pepper spray despite this lack of security.
+Over at the bench, I saw with a men playing a violincello.
 
-Here, Jeruan steps outside of the train, and ascends the escelator into the city above, dimly lit by the glow of hanging star of rid in the midnight colored sky. She had just returned home from high school, having to travel several miles for school. It was here that she remembered a specific class period.
+"You play very nicely, however why play an instrument, with modern music playing on the radio in the same building" I asked, not meaning to offend.
 
-In many classes it wasn't uncommon to have a special day during the school year, where they were have a potluck where students would bring lunch. Such classes would generally be in the afternoon, and would be especially nice for students who could not otherwise afford a lunch. It was a school where they had to cut certain programs, like free lunch, in order to pay other expenses like maintaining the parking lot. The teacher would have the class watch a movie related to the lesson, generally that of Julius Ceasar or McBeth. Yet curiously none of the many adaptation of Magical Realism novels that had been out for decades.
+"It's not to entertain the guests" they said, with a faint chuckle. "It's to drive away evil spirits".
 
-Jeruan would enjoy eating the barbequed weiners cooked inside of a crocpot, while one of her classmates wearing a baseball cap and a pair of birkenstocks would watch her eat while drawing pictures of roses. Eating inside of the cafeteria was always a lonely experience, and never anything like what tended to be depicted on television, with the sole exception being "silent lunch" periods, a form of collective punishment for the offense of one student. But here she would not be unique in the ability to talk during class. Generally this potlocks would be close to Summer vacation.
+I struggled not to laugh, out of politeness. "I suppose ghosts also have places they need to go."
 
-Do to a change in culture during 2056 A.D., teachers starting approaching discipline in a different way, where students would generally be suspended for a week, to about a year. But the changing times brought back school spanking, and there was a special term for teachers that would bend students over the desk. Merusa Sifana. So it was a mixed bag as to whether they would be hit by the teacher, or allowed to eat during the classroom. But the original theory behind this was to prevent the student from missing important classes.
+"Indeed, we have one that visits us every evening."
 
-One class room stood as the odd exception, that permitted Jeruan to eat in class all the time. In fact, instead of doing biology assignment, this particular Sifano would have the class eat a salad with bacon. This salad would be laced with some variant of cannabis and LSD. The her head and flower barret would seem to grow a million times larger, and her neck would wiggle about while she spoke in chanting verses. Despite the fact that the high school was years behind other districts, and being one of the few schools to still hit their students, this teacher would be the one class that she would always look forward to. Even Birkenstock wearing girls who were perpetually late like one of her classmates, who would be smoking pot inside of the bathroom stalls.
+I couldn't entirely tell if the man was being seriousness, or if he simply wanted to push past the absurdity of practicing his instrument inside of a fitness center.
 
-Most classrooms would keep a dark green colored chalk board, while other school moved onto using dry erase. Students here would not even be allowed to used digital drawing and writing styluses, while Sifanas preferring them to still not even use the cheapest of mechanical pencils. Even in districts that still had Amish people, the ones that remained after the massacre of thousands during the Leftist Revolution of the 2020s, would still have to use modern writing and drawing convienences.
+Just then, I saw a young woman, whose blond hair was covered in a Russian headscarf, and her face covered in blond hair. She knocked loudly as the storm rained loudly outside the window. I walked to the window, keeping the door cracked. "Hello Mam, don't you want to come inside from the cold wind?" I said, but there was no response from her.
 
-This was the school Jeruan had to go to day in and day out.
+"Close the door! Don't let her in" the main with the violincello said.
 
-Jeruan returned home from the station.
+"Why is that, she must be cold".
 
-Jeruan would talk to the friends she knew in the district of 2170 A.D., or at least it felt like it compared to this school, who gradually stopped returning her calls. Eventually she went completely cold Turkey with cell phone usage, and the only replacement was an old flip phone, that had old "Rectangle Pukus" games. Rectangle Pukus was a genre of games characterized by being parodies of mainstream JRPG titles, with more more blood and gore. It wasn't uncommon for these games to have the entire floor tiles covered in blood.
+"That's the ghost I'm talking about. That's the wife if our dead Champion, who was found hanging in her closet, after her husband would never come home again."
 
-There was Berudo team, which would sometimes split into different factions. However eventually a physical fued broke off between them, causing them to abandon the games altogether.
+The day came and went, and I would saw the woman eventually board a different train, leaving behind a letter to the manager. However the letter was dated just a year ago, and not even intended for today:
 
-She wondered why her parents would never ask her friends. But she also did not want to tell them she was considering breaking away from the team, that her friends had initially started as a union that would work against some of the abuses in nerd culture in other parts of society. Instead she was alone again.
+Dear Manager,
 
-She became Ros Wierudo Eguno: A widow gun.
+You've treated my husband so nicely.
 
-And this was how she went to the station the next day, with a Wierudo Eguno in tow.
+I know he had not been the nicest of men,
 
-The next morning, another dead body was bloodied at the station: it was Jeruan.
+Now I go quietly into the after life.
 
-Just another sack of meat.
+I give you a briefcase of 1,000 dollars.
+
+As it turned out, the spirit of his dead wife continued to pay the rent for her husbands membership, even after they both left this world behind. The management never thought to question it, was it was still keeping them in business. And most of the people that ran their newsletters just assume it was a fitness center that was barely making ends meet.
+
+I board the train, thanking the men for his evening entertainment.
+
+Once the outside air left me behind, I saw the woman sitting in the chair near the door. She left a seat open for me to sit behind her.
+
+"So I heard about your husband." I said.
+
+"Yes, he was a good man".
+
+"I come to pay my respects".
+
+"I guess no all murderers are awful people".
+
+We road away into the train. It turned out, she was the one that kept my backpack for me waiting on the train. I opened the black backpack and found, to my horror: the box of ashes of the heavy weight champion over my folder of business papers.
+
+"So where are we going to take these?"
+
+"Lets work together and find out".
+
+"I thought you died by the way".
+
+"As long as this fitness center remains open, I can keep my husbands memory alive. As we're going to go somewhere far away, where the lights of the city never reach. And the ghosts of the past walk the dirt roads. For you are also dead, as we go from one world to the next".
+
+I suppose your taste buds is the last to leave.
+
+I drank the last bit of my coffee cup.
