@@ -1,5 +1,5 @@
 ---
-title: "National Razor Arror: Just Another Sack Of Meat"
+title: "National Razor Arrow: Just Another Sack Of Meat"
 author: "S.R. Weaver"
 tags: dystopian francojapanese alternateuniverse flashfiction
 ---
