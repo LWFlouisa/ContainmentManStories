@@ -1,44 +1,68 @@
 ---
-title: "Blood Otaku"
+title: "Le Tete De Rose: Le Airport De Tokyo"
 author: "S.R. Weaver"
-tags: dystopian francojapanese alternateuniverse manga otakflashfiction
+tags: dystopian francojapanese alternateuniverse airport enlargedheadsyndrome
 ---
-She just arrived home from school to read some of her Manga, which ranged from Original English Language Manga, Original French Language Manga, although to ones directly made and licensed from Japan. From ongoing titles, to flashes in the pan; overnight successes, and those who disappear during the night. Super stardom for the lucky few, and obscurity for the rest. But she had left this world behind when beginning to expand her reading to other comics in other countries, specifically from France. But she found that she was missing one volume from one specific series. And couldn't recall whether she had in fact purchased in online, or never bought it at all.
+Ros etetos garundos, enlarged head syndrome. This was what the doctors diagnosed, when she had her cranium expanded, with biologically inert metallic plates holding her head together. Every now and then she still gets head aches, and the powders that she receives as part of airline maid training only does so much for her.
 
-At first she thought she heard the sound of her older sister, sitting in the rest room, reading one of her books. But then remembered that herself and her sister had been grown up for years, and they very rarely talk to each other anymore except for the Holidays. She lounged on the couch, wearing her Birkenstock Boston clogs, and would fantasize about the characters that she would read, bleeding from out of their necks. They called the "Blood Otaku", because she would play with herself when she would see a cute girl in one of her Mangas, getting her head chopped off with a guillotine or ax.
+Initially Suzuki Marie did not have many chances to visit with the homeless looking girl, who would, despite being Anglophone and being of the age where people still spoke English, spoke a natural degree of Francaise, and a passable amount of Japanais. She never had many opportunities to talk with her directly, despite being a frequent flier on airports in which she would travel. One of the first words they exchanged were:
 
-Her mother was outside of her room, making dinner in the oven. It was a bacon and mushroom pizza, using sriracha and spicy tomato sauce. She would imagine the tomato-sauce oozing from out of the severed necks of anime girls, warrior maiden whose heads would be lopped off with a curved sword a cross between a Claymore and a Katana. "Ros Serayamos", designed to to break armor, and from the curve of its blade be effective at decapitations.
+-- So where are you off to?
 
-It was getting late, and she headed for bed.
+-- To the next airport to find a great airport.
 
-While dreaming of girls that were headed.
+-- But surely you have some specific place to go?
 
-The morning red sunlight beamed through the window. She got herself dressed in her rose hat, and her Esiabas. Esiabas had the upper of a French Sabot, or a German Holzshuhe, but the pronged soles of Japanese geta. She tapped danced in the driveway all the way to the bus. Normally you would think the school system would have a problem, but certainly no students she ever had a problem with ever said anything about. Instead the ones that tried, would end up a bloody mess on the floor of some abandoned building in the city long sense abandoned by those who did construction in the Potato District.
+-- I suppose, although part of the fun of travel is observe how different places operate their flights. It helps that there is a lot of beautiful women, who attend the flights.
 
-So eventually people just tried to stay away from the girl with the manga books. The "blood otaku", they would call her. Who had a weird gate, and an extremely straight back. In this town, very few people talked to each other anymore any since the Pandemic regulations, and this had only recently began to loosen up after the vaccinations. Certainly nobody would be exchanging blood spatter along the floor of the bus.
+The manners of the flight attendant prevented her being able to ask whether the homeless girl found her to be attractive. She was unsure however why this specifically mattered, except that there was something about the woman that did not seem like other government support homeless people that would take flights. Her flights were to frequent, and therefore they would encounter each other to frequently. Plus, getting through different nations security systems did not seem like a pleasurable experience. With almost every country in the west having an extreme amount of steps to go through just to be deemed safe enough to travel the globe.
 
-At school, class would go as normally.
+Rah Ebuma Ini Eneru, the bum in black. She would would be sleeping near the window, and sometimes not even requesting snacks, despite it not costing in an extra dime to tide one over.
 
-At lunch she would dig out one of her books, that was the most recent release of some obscure Literary Magazine and Rah Esioma publication: one with more of a lyrical approach to caption production, with its layout covered in different ranges of purple on its website, that she would purchase the book online from. Here in these books, would be plenty of decapitations by "Ros Serayamos", the armor crushing sword.
+-- Are you hungry Musa?
 
-Trapped in a prison of deranged desires, the flow of blood flowing in every single page, she had to be extremely careful about what page she would be seen reading. Although generally she would set at the table that was closest to the wall in the schoolyard, closer to the English of Honors English class. And in her mind, the entire schoolyard would be flowing with blood on every single page, like some deranged Golden Age comic anthology.
+-- Nio, gehi ne fam piesa.
 
-A new girl, who arrived at the school, sat across from her.
+-- How do you make sure you are fed.
 
-"They say that you're the Blood Otaku. Why is that?" she asked.
+-- Me and friends I would meet would sometimes roast some coffee, and have Korean and Japanese barbecues outside. At other points I mostly just buy a salad and a beer.
 
-"Lets hope that you never find out. Just kidding! It's not true."
+Marie had gotten used to receiving to much information from her charge. But sometimes this would distract her from her duties, in which the head would sometimes lecture her for malpractice. However, knowing that it was the only way in which she could receive pain medication, which was enough to keep her completely abandoning her job, as this was even more important than food sometimes, she eventually would break it off, and Rah Ebuma Ini Eneru would would go back to sleep by the window, and read books about Left-Market Anarchism, and various currently released manga she kept on her electronic reader.
 
-"Well thank Mother Mary."
+The nature of the bum's lifestyle preventing her from having a permanent home, because she wanted to maintain the illusion that she was rich enough to pay for various flights, but not enough to rent an extended stay hotel. Thus she would buy whatever books she wanted on her electronic reader. Eventually one of the airports in which she arrived had to take an extended flight delay. This gave the two time to exchange few more emotas.
 
-"Are you religious?"
+-- I never got your name? Marie asked.
 
-"...Yes"
+-- I rarely use my real name anymore. However, online I refer to myself as "that precious reader".
 
-It had been many years sense she had interacted with a religious person. Generally she avoided them, under the assumption that they would not approve of her sexually, although there was no reason to assume that there would not be a left-leaning religious person. Although the schism sense the start of the Franco-Japanese wars largely made both sides of politics more and more extreme. So she simply resolved to never interact with anymore with different politics. Although this later evolved to seldom interacting with anyone. And perhaps that was why she came to only read Esiomi, American French and Japanese language manga, made by fellow enthusiasts of the French and Japanese languages.
+-- What would you read on your flights.
 
-She just needed to make sure her new friend never saw of the real books she was reading, in case a real relationship would ever blossom.
+-- I would usually read manga currently released in Japan. She offered Marie a cigarette, but she waved it off. But I also sometimes beta reader fellow comic creators work.
 
-Otherwise she would know what she was a lie.
+-- I can't smoke, it gives me head aches.
 
-And that she was...the Blood Otaku.
+-- From that beautifully large head of yours.
+
+-- Pardon moi?
+
+-- Desole. Didn't mean to offend.
+
+-- No, I'm just sensitive about.
+
+The Precious Reader gently placed her palms on her head. Suddenly all of the memories of Marie would come into her head. Marie would play different puzzles to expand her intelligence prowess, but at some point her brain started growing more rapidly than her skull could keep up. Eventually the doctors became involved in an emergency procedure to expand its size. But there was a chance that it may shorten her life.
+
+-- So in order to live, they took a chance on you.
+
+-- How did you know?
+
+-- Lets just say, I have my way of things. But worry not. You're one of the more beautiful girls that I have ever met.
+
+-- Is there somewhere you'd like to go next?
+
+-- Isn't the flight delayed?
+
+-- I mean here, at the "Airport De Tokyo".
+
+-- I have time if you to.
+
+-- All the time in the world.
